@@ -10,4 +10,7 @@ i have anger issues, if you see me lash out at some point - please remember
 that i'm always sorry for that, i can't control it
 
 on a lighter note, basli is a persona of mine, they're a frosted (?) lime 
-sugar cat-cookie. ^^
+sugar cat-cookie. 
+
+i also have a bunch of alt accounts, i use different identities for each regi i'm in.
+if you see me? cool. feel free to call me as my other regi identity's name in another regi.
