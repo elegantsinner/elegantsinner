@@ -1,16 +1,13 @@
-## Hi there 👋
+hi. i can't code so here's just a simple introduction of me without any images. just plain text
 
-<!--
-**elegantsinner/elegantsinner** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hello! my name is saint, i'm known as 'basli' in some regiscouts/ments though. 
+i'm a server owner of a disbanded regi, which i will not delve deep about
 
-Here are some ideas to get you started:
+i use they/them only. any she/him will immediately make me uncomfortable.
+i also have cwd+cd, except i don't really have cwd in regis so
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i have anger issues, if you see me lash out at some point - please remember
+that i'm always sorry for that, i can't control it
+
+on a lighter note, basli is a persona of mine, they're a frosted (?) lime 
+sugar cat-cookie. ^^
