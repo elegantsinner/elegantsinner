@@ -1,4 +1,4 @@
-hi. i can't code so here's just a simple introduction of me without any images. just plain text
+⪩  hi. i can't code so here's just a simple introduction of me without any images. just plain text
 
 hello! my name is saint, i'm known as 'basli' in some regiscouts/ments though. 
 i'm a server owner of a disbanded regi, which i will not delve deep about
